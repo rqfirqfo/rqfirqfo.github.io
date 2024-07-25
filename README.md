@@ -1,2 +1,2 @@
 # rqfirqfo.github.io
-a website for my youtube channel
+i'm too lazy to make a website so yeah here it is
